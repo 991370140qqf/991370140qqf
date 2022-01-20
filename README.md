@@ -1,4 +1,4 @@
-### Hi there 👋
+Great works are performed not by strengh, but by perseverance. Samuel Johnson, British writer and critic  there 👋
 
 <!--
 **991370140qqf/991370140qqf** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
